@@ -1,2 +1,0 @@
-# servid
-h7gybvyhb
